@@ -1,5 +1,5 @@
 # ASKsek-Launched-in-Bor-Town-
-![20220316_111036](https://user-images.githubusercontent.com/56886935/158627712-4f7a2190-3cb1-4226-836a-9138a958683a.jpg)
+![launching #Asksek](https://user-images.githubusercontent.com/56886935/158627712-4f7a2190-3cb1-4226-836a-9138a958683a.jpg)
 Ataka Hub, Launched ASKsek (Access to skills and Knowledge science experiment kit), a mobile kit that shall be able to provide laboratory tools and materials and reagensts to enhance the learning of sceince subjects in schools by advocating for practical lessons in schools in Bor town, South Sudan!
 
 ![20220316_093311](https://user-images.githubusercontent.com/56886935/158628540-f372e285-a198-485f-a7f8-703724b79793.jpg)
