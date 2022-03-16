@@ -7,7 +7,7 @@ Ataka Hub, Launched ASKsek (Access to skills and Knowledge science experiment ki
  
 Vine High secondary schools with a population of about 250 students with over 100 of them being  s4 students waiting to sit for their exams later in the year, but these numbers come with a looming challenge, “we don’t have never done any practical lessons for the students offering science subjects, making it hard for them to understand what has been taught or what may likely be examined” said worried Science teacher Mr. Nyiko Baptist, as he talks during an interview just before the launch of the ASKsek.
 
- ![20220316_101818](https://user-images.githubusercontent.com/56886935/158630626-67af5773-56ed-4ba0-9a5c-9647c5111879.jpg)
+ ![testimonials](https://user-images.githubusercontent.com/56886935/158630626-67af5773-56ed-4ba0-9a5c-9647c5111879.jpg)
 
 
 During the Launch of the ASKsek, Mr. Nyiko Baptist organised a physics practical session with the S4 students with a focus on ‘Motion Under Gravity”.
